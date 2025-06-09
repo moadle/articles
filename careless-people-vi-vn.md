@@ -134,4 +134,4 @@ https://www.reuters.com/business/retail-consumer/eu-says-it-will-enforce-digital
 
 Như Martin Luther King, Jr đã nói:
 
-Luật pháp không thể làm cho một người yêu tôi, nhưng nó có thể ngăn anh ta treo cổ tôi, và tôi nghĩ điều đó khá quan trọng.
+"Luật pháp không thể làm cho một người yêu tôi, nhưng nó có thể ngăn anh ta treo cổ tôi, và tôi nghĩ điều đó khá quan trọng."
